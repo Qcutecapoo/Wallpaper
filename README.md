@@ -1,2 +1,2 @@
 # capoo.github.io
-About Fanmade's Bugcapoo Wallpaper (Include Products)
+About Fanmade's Bugcat Capoo Wallpaper (Include Products)
